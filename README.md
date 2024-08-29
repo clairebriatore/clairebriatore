@@ -12,5 +12,5 @@
 - 💬 Ask me everything about digital marketing & online marketing (7+ professional experience)
 - 📫 How to reach me: LinkedIn 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Never underestimate a really good scrambled egg
+- ⚡ Fun fact: Never underestimate a perfect scrambled egg
 
